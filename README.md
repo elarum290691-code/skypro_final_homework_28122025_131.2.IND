@@ -1,0 +1,1 @@
+# skypro_final_homework_28122025_131.2.IND
